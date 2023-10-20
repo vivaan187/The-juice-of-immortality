@@ -1,1 +1,2 @@
 The protagonist must drink the elixir of immortality. But on the journey he/she slowly decides not to.
+On the way the Protagonist battles giant sentient potatoes, calculators with a mad urge to literally crunch numbers.
